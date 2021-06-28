@@ -1,0 +1,1 @@
+Estou achando ótimo o curso muito bem organizado, só o curso de git até aqui esta sendo complicado, as informações a serem passadas.
